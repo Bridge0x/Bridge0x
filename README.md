@@ -13,8 +13,10 @@
 
 **On stage** — CES Las Vegas · Web Summit · We Make Future · ETH Milan · ETH Rome · NapulETH · ETHna · Tor Vergata, Sapienza and University of Florence
 
+**Featured in** — [AIBC](https://aibc.world/news/prediction-markets-brigato-blockchain-unlocks-idle-capital/) · [SiGMA World](https://sigma.world/news/blockchain-igaming-security-innovation/) · [iGaming Business](https://igamingbusiness.com/uncategorized/gibraltar-hosts-first-european-summit-on-prediction-markets/) · [AGIMEG](https://www.agimeg.it/prediction-market-sigma-world-roma-regolamentazione/)
+
 **Focus** — DeFi · Prediction markets · Tokenization & RWA · Digital identity (eIDAS 2.0) · Digital Product Passport
 
 ---
 
-[alessandrobrigato.com](https://alessandrobrigato.com)
+[alessandrobrigato.com](https://alessandrobrigato.com) · [LinkedIn](https://www.linkedin.com/in/alebrigato/) · [X](https://x.com/Bridge984)
